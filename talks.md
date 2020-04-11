@@ -1,3 +1,0 @@
-**Invited talks:**
-
-* 
